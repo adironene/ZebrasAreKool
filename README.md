@@ -6,6 +6,11 @@ So... I like zebras
 they are kool creatures and are unappreciated; so I've decided to write an app that promotes this mysterious 
 creature.
 
+                     88
+                     88
+                     88
+888888888                     
+                     
                      88                                 
                      88                                 
                      88                                 
