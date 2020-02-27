@@ -1,6 +1,6 @@
 # ZebrasAreKool
 
-** **A haven for all zebra lovers
+A haven for all zebra lovers
 
 ---------------------88--------------------------------                                                                      
 ---------------------88--------------------------------                                                                       
